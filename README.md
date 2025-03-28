@@ -11,16 +11,25 @@
 
 || —  📖 about me
  
- —  *on***yxx**  \  **milo**  \  *mi***la**  
+ — 🖊️ *on***yxx**  \  **milo**  \  *mi***la**  
    
-—  *S***he** \ *h***er**
+— 🚺 *S***he** \ *h***er**
 
-—  ***minor***
-
-
-—   *bi***sexual** 
+— 🧸 ***minor***
 
 
-—  **black gal**
+—  🩷 *bi***sexual** 
 
-— *artsy* **nerd** 
+
+—  🍉 **black gal**
+
+— *artsy* **nerd** and **music** *lover*
+
+* ──── ୨୧ ──── ──── ୨୧ ──── ──── ୨୧ ──── ──── ୨୧ ──── ──── ୨୧ ──── *
+
+# BASIC DNI CRITERA !!
+— 📢 **Proshippers, like williamxelizabeth and willry**
+
+— 📢 **18+ DNI! (Unless you are a chill person and mean no harm)
+
+— 📢
