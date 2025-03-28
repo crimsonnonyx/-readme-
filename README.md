@@ -12,13 +12,19 @@
 
 
  
- —  *on***yx**
+ —  *on***yxx**  \  **milo**  \  *mi***la**
+
    
-—  *S***he** \ *h***er** **ONLY**
+—  *S***he** \ *h***er**
+
 
 —  ***minor***
 
+
 —   *bi***sexual** 
 
-—  **black gal ( yes i like chicken and watermelon /j )**
- 
+
+—  **black gal**
+
+
+— *artsy* **nerd** 
