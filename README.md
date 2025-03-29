@@ -1,4 +1,6 @@
  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3155xrirqclxkqoc5o4qnnxlella&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&bar_color=f485c0)](https://github.com/kittinan/spotify-github-profile)
+
+
 ||`` 𝒲𝒽𝓎 𝒸𝒶𝓃'𝓉 𝐼 𝑔𝑜 𝓃𝑒𝒶𝓇 𝒽𝑒𝓇?``
 || — ♡ did u know **𝐮 𝐚𝐫𝐞 𝐩𝐞𝐫𝐟𝐞𝐜𝐭** just the way **you** are. ||  
 
@@ -29,7 +31,7 @@
 # ``BASIC DNI CRITERA !!``
 — 📢 **Proshippers, like williamxelizabeth and willry**
 
-— 📢 **18+ AND under 12 DNI!** (Unless you are a chill person and mean no harm)
+— 📢 **18+ AND under 12 DNI!** (unless ur chill)
 
 — 📢 **Trans/Homophobes, **
 
@@ -37,4 +39,6 @@
 
 — 📢 **Pedophiles and Minor Sexualizers.**
 
-— 📢 **
+— 📢 **Racists + Sexist**
+
+— 📢 **People that like to make grape jokes**
