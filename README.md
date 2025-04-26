@@ -29,7 +29,7 @@
 * ──── ୨୧ ──── ──── ୨୧ ──── ──── ୨୧ ──── ──── ୨୧ ──── ──── ୨୧ ──── *
 
 # ``BASIC DNI CRITERA !!``
-— 📢 **Proshippers, like williamxelizabeth and willry**
+— 📢 **Proshippers like william x michael**
 
 — 📢 **18+ AND under 12 DNI!** (unless ur chill)
 
